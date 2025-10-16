@@ -8,10 +8,11 @@
 </p>
 
 ### ₊˚⊹ ᰔ 𝐁𝐘𝐈 !!! ⋆˚꩜｡
-> ⋆ You can approach/whisper me anytime even if I'm with friends! I guarantee you'll get a reply or a reaction !
-> ⋆ I love pastel colors and cute stuff... but I can top you /hj  
-> ⋆ I might make freaky/dark jokes only to people I know that are okay with it!  
-> ⋆ I tend to talk a lot sooo just be warned...  
+> ⋆ You can approach or whisper to me anytime , even if I'm with friends ! I guarantee you'll get a reply or a reaction !
+> ⋆ I love pastel colors , but don't underestimate me — I can top you /j
+> ⋆ I might make weird or dark jokes, but only to people I know who are okay with it !
+> ⋆ I tend to talk a lot, so just be warned ...
+> ⋆ I AM NOT MAD; I JUST LIKE SPEAKING IN CAPS, OK?
 
 <p align="center">𓂃₊˚⊹♡ Thats all ! ₊˚⊹ ᰔ  </p>
 
